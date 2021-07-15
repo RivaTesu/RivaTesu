@@ -1,5 +1,5 @@
-🦝 Yo! Tell me where you're going, and I'll go the other way.
+🦝 Yo! No matter how strong the pain is, it's our duty to move forward. You're wrong for running away from reality.
 
-[Better forget it!](https://youtu.be/JkRKT6T0QLg)
+["Fill'er up. High octane"](https://www.youtube.com/playlist?list=PLvW3Nc2YKseSgOkBCLeuo0bWtWxF6AFJ-)
 
 [Masterpiece!](https://youtu.be/E-cMaMiwNmg)
